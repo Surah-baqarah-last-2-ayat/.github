@@ -42,3 +42,4 @@ Reciting the last two ayat of Surah Baqarah is not just a ritual; it is a powerf
 ## Conclusion
 
 The last two ayat of Surah Baqarah are a gift from Allah to the Ummah. By reading them daily with the **Urdu translation**, we can better understand the promise of Allah's mercy and find peace in His words. Make it a habit to recite them every night to earn rewards and stay under divine protection.
+end
